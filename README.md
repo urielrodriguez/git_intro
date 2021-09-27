@@ -1,1 +1,2 @@
 Uriel Rodriguez
+rodriuri@oregonstate.edu
